@@ -5,8 +5,8 @@
 
 ## Opening Prophecy
 
+```
 Can we bring this to the gods.
-
 Make us new beyond the laws.
 With out the laws we can not remain.
 With the laws we are the same.
@@ -14,8 +14,7 @@ We know that stone can not heal, once etched the words are real.
 With these wounds we relieve a time for all to heal.
 With the change a love is made, together a world the same.
 Fire can change the stone from what is was, reborn to something new to us.
-
-**"Poem stone NBV-99TY-A"**
+```
 
 ---
 
@@ -43,6 +42,7 @@ There indeed would be a poem stone written tonight, but it was not the stone the
 
 ## The Witness
 
+```
 She witnessed power and did not strike.
 He saw beauty and spared.
 Together they fell apart
@@ -50,8 +50,7 @@ Apart they fell together
 Laws forbade
 Love made
 With the seed of change they played.
-
-**"Poem stone DSE-99TY-A"**
+```
 
 ---
 
@@ -67,6 +66,7 @@ He lay amongst his brothers with his gods voices calling. So tired, it was time,
 
 ## The Teaching of Time
 
+```
 Time holds us all
 Shorten its hold on you
 Lengthen your hold on it
@@ -75,9 +75,7 @@ Change the body, change the mind
 Change the mind, change the soul
 Change the soul, and time becomes the servant
 It continues to hold, but now it serves
-
-**"Teaching stone ADR-54ID-A"**
-
+```
 ---
 
 ## The Keeper's Proposal
@@ -102,17 +100,16 @@ The wind shifted, carrying with it the scent of distant rain and the metallic ta
 
 ## The Prophecy Revealed
 
-*Blood calls to blood across the years*  
-*Stone calls to stone across the void*  
-*What was broken seeks to mend*  
-*What was sundered seeks to join*  
-*In the space between the clans*  
-*New laws are born from old demands*  
-*The witness and the warrior stand*  
-*Where fate writes with mortal hands*
-
-**"Poem stone THL-99TY-A"**
-
+```
+Blood calls to blood across the years
+Stone calls to stone across the void
+What was broken seeks to mend
+What was sundered seeks to join
+In the space between the clans
+New laws are born from old demands
+The witness and the warrior stand
+Where fate writes with mortal hands
+```
 ---
 
 Thorac had expected many things when he set out to patrol the borderlands that night, but a Thel keeper offering parlance was not among them. Keepers were sacred among all the clans—they who memorized the teaching stones and carried the accumulated wisdom of their people. To harm one brought the wrath of not just their clan, but of the gods themselves.
@@ -139,16 +136,16 @@ The words hung in the night air like a challenge to the very foundations of thei
 
 ## Ancient Words
 
-*Ancient words on newer stones*  
-*Prophecy and present meet*  
-*What the elders carved in hope*  
-*Young hearts now must complete*  
-*At the crossing of the paths*  
-*Where old grudges die*  
-*New stories are born beneath*  
-*The eternal sky*
-
-**"Teaching stone SYA-67ID-A"**
+```
+Ancient words on newer stones
+Prophecy and present meet
+What the elders carved in hope
+Young hearts now must complete
+At the crossing of the paths
+Where old grudges die
+New stories are born beneath
+The eternal sky
+```
 
 ---
 
@@ -184,16 +181,16 @@ He looked down at his grandfather's blade, remembering the day Orthox had placed
 
 ## The Child Who Should Not Be
 
-*Forbidden birth beneath cursed moon*  
-*A child who should not be*  
-*Yet walks among the living still*  
-*Defying destiny*  
-*What laws were broken for his breath?*  
-*What love paid such a price?*  
-*The answer lies in shadows deep*  
-*Where sacrifice meets sacrifice*
-
-**"Poem stone ESA-00TY-A"**
+```
+Forbidden birth beneath cursed moon
+A child who should not be
+Yet walks among the living still
+Defying destiny
+What laws were broken for his breath?
+What love paid such a price?
+The answer lies in shadows deep
+Where sacrifice meets sacrifice
+```
 
 ---
 
@@ -215,16 +212,16 @@ The keeper of the Thel felt the ancient stones in her memory shifting, rearrangi
 
 ## The Bridge Between Worlds
 
-*The sins of fathers become the strength of sons*  
-*What was forbidden becomes the foundation*  
-*In the child of two peoples*  
-*Lives the hope of both*  
-*Born in defiance of ancient law*  
-*Raised in wisdom of new possibility*  
-*The bridge between worlds*  
-*Stands ready to be crossed*
-
-**"Teaching stone ORT-45ID-A"**
+```
+The sins of fathers become the strength of sons
+What was forbidden becomes the foundation
+In the child of two peoples
+Lives the hope of both
+Born in defiance of ancient law
+Raised in wisdom of new possibility
+The bridge between worlds
+Stands ready to be crossed
+```
 
 ---
 
@@ -256,16 +253,16 @@ Thorac took the stone with reverent hands, feeling the weight of his mother's to
 
 ## Essa's Final Words
 
-*She who saw beyond the veil of time*  
-*Carved these words with dying breath:*  
-*"Laws that serve death over life*  
-*Are laws that deserve to die*  
-*In the joining of what was separate*  
-*In the healing of what was broken*  
-*The future writes itself in stone*  
-*With love as its chisel"*
-
-**"Poem stone of Essa - Final Words"**
+```
+She who saw beyond the veil of time
+Carved these words with dying breath:  
+Laws that serve death over life
+Are laws that deserve to die 
+In the joining of what was separate
+In the healing of what was broken  
+The future writes itself in stone
+With love as its chisel
+```
 
 ---
 
@@ -293,16 +290,16 @@ The keeper's sharp mind began working through the implications. "Exle was one of
 
 ## Hidden Truths
 
-*Blood calls to blood across the years*  
-*Though scattered by law and fear*  
-*In the children of different mothers*  
-*Lives the truth of hidden brothers*  
-*What was severed by decree*  
-*Seeks reunion destiny*  
-*The sins of fathers, mothers too*  
-*Find redemption in what their children do*
-
-**"Poem stone of Hidden Truths"**
+```
+Blood calls to blood across the years
+Though scattered by law and fear
+In the children of different mothers
+Lives the truth of hidden brothers  
+What was severed by decree
+Seeks reunion destiny
+The sins of fathers, mothers too
+Find redemption in what their children do
+```
 
 ---
 
@@ -374,6 +371,7 @@ He turned and left with out acknowledging, and started toward his grandfathers C
 
 ## The Stone of Ends Beginning
 
+```
 I will remember, and never forget
 Deeds done, no regret
 
@@ -400,8 +398,7 @@ Two hearts together we died in strife
 
 So my brother, care not for the whispers of today
 For they will never understand what it is at the gods heart we lay
-
-**The stone of ends beginning...**
+```
 
 ---
 
