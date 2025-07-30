@@ -255,11 +255,11 @@ Thorac took the stone with reverent hands, feeling the weight of his mother's to
 
 ```
 She who saw beyond the veil of time
-Carved these words with dying breath:  
+Carved these words with dying breath:
 Laws that serve death over life
-Are laws that deserve to die 
+Are laws that deserve to die
 In the joining of what was separate
-In the healing of what was broken  
+In the healing of what was broken
 The future writes itself in stone
 With love as its chisel
 ```
@@ -294,7 +294,7 @@ The keeper's sharp mind began working through the implications. "Exle was one of
 Blood calls to blood across the years
 Though scattered by law and fear
 In the children of different mothers
-Lives the truth of hidden brothers  
+Lives the truth of hidden brothers
 What was severed by decree
 Seeks reunion destiny
 The sins of fathers, mothers too
@@ -323,13 +323,54 @@ The Clamortic Moon had nearly set, but neither felt the urgency of its passing a
 
 The wind shifted again, carrying with it the scent of approaching dawn and the weight of changes that could no longer be avoided.
 
+## They Sing for Their Dead
+
+The battle had never been in question since the first point of contact between him and the five Thel. Many had witnessed his skill in the quick, effortless encounter, and all knew one of the five was Arok, who even to the mighty warrior clan Ubu was known for his skills. They had been children to him, moving in a different time then him, seemingly fumbling, it was as if they carried no weapons. Even now some muttered and questioned what they had seen. Those that had not, believed, but... well could five be brought down in such a effortless fashion?
+
+Magoroc was there, he saw, and he knew in his heart he would be hard pressed to defend against such a flowing blade. This thought did not upset, worry, or even drag a bit on his mind. He was an Ubu warrior, and such thoughts had never been allowed to bare fruit or find any hope of maturation in his mind. It was simply a logical thought that one of his craft would have. It was natural, especially amongst clan, to probe for weakness, in this the clan strengthened. His trained eye could not find any weakness in Thorac's amazing skill. A smile fell upon his face at this, and a pride, for he was the Ubarac, each of these warriors were more than blood to him, and one such as this would undoubibly strengthen the Ubu. Perhaps this clan could finally take its place at the table of Alamar U Tor, and become one of the high clans. "It would be bitter sweet for him if we finally became a high clan" he thought.
+
+He had summoned Thorac, and as he approached he continued to evaluate and probe. Not as large as either his father or grandfather, and his hair was long, dark, and thick with youth. Each step brought a ripple of muscle up his leg and through his midsection. He carried his weapons in the old style, sword across the back tilted at an angle, dagger resting at chest level attached to the swords sheath strap. He could see Thorac's grandfathers touch in this, he was stubbornly of the old ways, this thought brought a smirk to his iron face. He saw Thorac look him quickly from head to toe and noted to himself "What weakness have you uncovered"? They greeted, not has Ubarac and clansman, but as a family would. The Ubarac's battle worn hand gripped him on his strong sword side. It was a tradition that meant "You are of my clan, there is no threat here", and for one to allow this spoke of trust. There was much more than trust and respect between these two. All knew their history, mixed with pain, suffering, strife, and now deep respect for what each brought to the clan. They briefly spoke to each other, words no one could hear, but on each face all could read respect, pride, and a deep friendship. They turned when the rights began, and they looked upon a barbaric scene, which for any who witnessed, no matter how many times, held its power to each heart.
+
+It was a picture bordering on surreal, the sun was almost descended into its final glimpse, and the the moons where raising in concert upon each horizon. The dead had been piled, their heads aligned facing the descending sun, weapons not sheathed, eyes closed, stripped of all clothing. A touch of fire and a final journey begins, the fire rising and as one the clan sings their song of honor. A song that in its core expresses the emotion that they will not be forgotten, not lost in histories web.
+
+```
+I will remember...
+
+Mist and smell of the burning fire
+The face of brother, son, father, vanishing in the pyre
+
+Born of violence, life of man
+As we will, you gave all for clan
+
+Strong we stand and sing our song
+In respect of clansmen gone
+
+No more the call of cheer
+No more our hearts to hear
+No more we embrace in play
+Lost in battle this day
+
+Your steel sang calling the souls to death
+Brave struggle to their last icy breath
+
+My life now goes on with out care
+For I know you are no longer there
+
+Let the fire consume what is no longer you
+I will remember my clansmen, and honor those you slew
+
+I will remember...
+```
+
+---
+
 ## The Morning Encounter
 
 He awoke to silence, clean, peaceful silence. As he was trained he did not open his eyes, instead using other, deeper, senses he explored. It was something his Grandfather instilled in him, knowing to open ones eyes shows you are awake. He recalled this training started as a game in his youth, one his Grandfather would carefully mature as time marched.
 
 He could tell that the sun was not yet in play, obviously no light was detected but deeper still the air was that special sweetness before twilight.
 
-It was something he always cherished, a moment when just before the first light you could hear deep into the fading night. The faint sound of the Amfor tree stirred and the fading winds were there. 
+It was something he always cherished, a moment when just before the first light you could hear deep into the fading night. The faint sound of the Amfor tree stirred and the fading winds were there.
 
 He pushed deeper into the night, and found a voice. His sharp senses focused it and reached into themselves and found it was Em and he could tell she was speaking to some one. He felt how tense the words were being conveyed, the emotion was rich, like the air before the storm. He reached deeper, and believed she was at the holding Corrl, and thus she must be speaking with the Thul woman who was to be returned to her clan today. What she was saying was beyond even the reach of his trained senses, however it was clear it was a tense moment for Em. She was rash, he knew, and prone to emotions before reflecting on there origins, he suspected this was in play now, and this guided his actions.
 
