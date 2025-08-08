@@ -6,14 +6,20 @@
 ## Opening Prophecy
 
 ```
-Can we bring this to the gods.
-Make us new beyond the laws.
-With out the laws we can not remain.
-With the laws we are the same.
-We know that stone can not heal, once etched the words are real.
-With these wounds we relieve a time for all to heal.
-With the change a love is made, together a world the same.
-Fire can change the stone from what is was, reborn to something new to us.
+Can we bring our plea to gods above,
+Transform us past these binding laws?
+Without law's structure, we dissolve—
+With law's constraint, we cannot evolve.
+
+We know that stone, once carved, stays true,
+The etched words hold what we can't undo.
+Through these wounds we forge a sacred space,
+A time for all to heal with grace.
+
+In change, we find a deeper love,
+Together building worlds thereof.
+Fire transforms the hardest stone—
+From what we were to what we've grown.
 ```
 
 ---
