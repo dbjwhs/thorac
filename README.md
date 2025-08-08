@@ -75,14 +75,23 @@ Thus passed Arok of the Thel, and with him died the hopes of his doomed clan.
 ## The Teaching of Time
 
 ```
-Time holds us all
-Shorten its hold on you
-Lengthen your hold on it
-The master knows it is not time that changes but the soul
-Change the body, change the mind
-Change the mind, change the soul
-Change the soul, and time becomes the servant
-It continues to hold, but now it serves
+Time's iron chains bind every mortal soul,
+Yet wise men learn to make the tyrant kneel.
+Compress each moment—stretch your will's control,
+While lesser minds let precious seconds steal.
+
+The master sees what fools can never know:
+Not time that shifts, but consciousness within.
+Transform the flesh—new thoughts begin to flow,
+Reshape the mind—the soul's true work begins.
+
+Forge soul anew, and time becomes your slave,
+Its ancient grip now serves your deeper will.
+The clock still turns, the hours still engrave
+Their passage—but you choose to move or still.
+
+Who conquers self conquers eternity,
+Makes a servant of what once held sovereignty.
 ```
 ---
 
