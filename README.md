@@ -26,23 +26,14 @@ From what we were to what we've grown.
 
 ## The Raid
 
-Though he had held it since birth, his grandfather's blade had never felt so light in his strong hands. With swelling pride, he had accepted it as his weapon when he ascended to manhood during the last summer's rights. Orthox, his beloved grandfather, who had once been the Ubarac of his tribe, was there to greet him at the exit of the "U Tar Uboc" with sword in hand. It was, to Thorac, a pinnacle moment in his life; he had reached his first level, and he was now a Utorac. Though it had taken him a little longer than most, due mainly to his grandfather's methodical teachings, when "Char U Tar Uboc" arrived, he was first to exit.
-
-These are the thoughts that floated in his mind as his foes descended upon him. They knew they faced one of the Ubu clan, and some would see their gods tonight. They thought they had enough men, and the markings of their foe told them he was simply a Utorac. For how could one stand before five and hope to survive?
-
-They soon realized they faced the greatest warrior the savage Ubu clans had ever seen. They faced the young Thorac, whose future deeds would change all and drive their world into a new age.
-
-Emorac raids consistently increased during the Clamortic Moon Cycle, which was a precursor to the long nights, when tribes who had suffered a calamity had to roll the dice and trust to the gods.
-
-Stealing was never considered, but taking through might, be it brawn or cleverness, was viewed as a natural way to acquire resources in the barren lands of Zulac.
-
-The Thel clan had suffered a calamity when their dam broke, flooding their crops and damaging their Almac, the house of Teaching, resulting in a profound loss of knowledge.
-
-Thus, the Thel had decided to gamble and attempt to take from the Ubu clan in one unexpected, mighty raid, which, if successful, would give them all they needed to make it through Clamortic. It had to succeed for each warrior brought with him the understanding of his family's needs, his clan's fate, and hope for glory.
-
-Total success would not only ensure the survival of children yet to be born, but also bring with it a poem stone in each Almac across the tribes. Sure the young Thel warriors thought about poem stones, however it was the elders that understood the real need of this raid. Each of them had consulted their gods and beliefs in private the night before, for they simply had to walk through their once thriving city to understand the sacrifice that was needed of them now.
-
-There indeed would be a poem stone written tonight, but it was not the stone Thel hoped for, and in fact, it was not the stone Ubu hoped for either.
+The blade of his grandsire had never sung so sweet in Thorac's iron grip. Forged in the ancient fires and quenched in the blood of kings, it had drunk deep of enemy life for three generations. When he had emerged first from the U Tar Uboc—the Trial of Manhood—last summer under the crimson moon, old Orthox had waited with the ancestral steel gleaming in his weathered hands. The former Ubarac's eyes had blazed with fierce pride as he passed the weapon to his grandson, for in that moment, Thorac had become Utorac—a warrior of the clan.
+These memories flickered through his mind like flame-shadows as death rushed toward him on five pairs of legs. The Thel warriors saw only his clan markings, read only the simple rank of Utorac, and grinned with wolf-like hunger. What was one against five? What hope had a single blade against their combined steel?
+They could not know they faced the deadliest killer the savage Ubu had ever spawned—young Thorac, whose name would one day shake the very foundations of their world and usher in an age of blood and iron.
+The Emorac raids always intensified during the Clamortic Moon Cycle, when the long nights approached and desperate clans rolled the bones of fate. In the harsh wastelands of Zulac, theft was a coward's game, but taking by strength—whether of arm or wit—was the natural law of survival.
+The Thel had learned this truth when their great dam shattered like a giant's toy, drowning their crops in brown flood-water and toppling their sacred Almac—the House of Teaching. Ancient scrolls dissolved, carved stones cracked, and with them died the accumulated wisdom of generations. Now they faced the choice all desperate clans must face: raid or starve.
+So the Thel elders had cast their lots and spoken their war-prayers. One great strike against the Ubu—swift, brutal, decisive. Success would mean survival for their children and glory-songs carved in stone for all the tribes to remember. Each warrior bore not just his weapons, but the weight of his people's fate and the hungry eyes of his kin.
+The elders knew what the young bloods did not—that victory would birth legends, but defeat would birth only graves. They had walked through their ruined city, seen the hollow eyes of their women and the swollen bellies of starving children. The gods demanded sacrifice, and tonight, beneath alien stars, that debt would be paid in full.
+Aye, there would be a poem stone carved this night—but not the one either clan expected, and written in blood darker than any scribe's ink.
 
 ---
 
