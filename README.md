@@ -26,23 +26,23 @@ From what we were to what we've grown.
 
 ## The Raid
 
-Though he had held it since birth, his grandfathers blade had never felt so light in his strong hands. With swelling pride he had excepted it as his weapon when he ascended to manhood during the last summers rights. Orthox, his beloved grandfather, who had once been the Ubarac of his tribe, was there to greet him at the exit of the "U Tar Uboc" with sword in hand. It was, to Thorac, a pinnacle moment in his life, he had reached his first level, he was now an Utorac. Though it had taken him a little longer then most, due mainly to his grandfathers methodical teachings, when "Char U Tar Uboc" arrived he was first to exit.
+Though he had held it since birth, his grandfather's blade had never felt so light in his strong hands. With swelling pride, he had accepted it as his weapon when he ascended to manhood during the last summer's rights. Orthox, his beloved grandfather, who had once been the Ubarac of his tribe, was there to greet him at the exit of the "U Tar Uboc" with sword in hand. It was, to Thorac, a pinnacle moment in his life; he had reached his first level, and he was now a Utorac. Though it had taken him a little longer than most, due mainly to his grandfather's methodical teachings, when "Char U Tar Uboc" arrived, he was first to exit.
 
-These are the thoughts that floated in his mind as his foes descended upon him. They knew they faced one of the Ubu clan, and some would see their gods tonight. They thought they had enough men and the markings of their foe told them he was simply an Utorac. For how could one stand before five and hope to survive.
+These are the thoughts that floated in his mind as his foes descended upon him. They knew they faced one of the Ubu clan, and some would see their gods tonight. They thought they had enough men, and the markings of their foe told them he was simply a Utorac. For how could one stand before five and hope to survive?
 
-They were soon to realized they faced the greatest warrior the savage Ubu clans had ever seen. They faced the young Thorac, whose future deeds would change all, and drive their world into a new age.
+They soon realized they faced the greatest warrior the savage Ubu clans had ever seen. They faced the young Thorac, whose future deeds would change all and drive their world into a new age.
 
-Emorac raids always increased during the Clamortic Moon Cycle, which was a precursor to the long nights, when tribes who had suffered a calamity had to roll the dice and trust to the gods.
+Emorac raids consistently increased during the Clamortic Moon Cycle, which was a precursor to the long nights, when tribes who had suffered a calamity had to roll the dice and trust to the gods.
 
 Stealing was never considered, but taking through might, be it brawn or cleverness, was viewed as a natural way to acquire resources in the barren lands of Zulac.
 
-The Thel clan had suffered such a calamity when their dam broke and not only flooded their crops, but damaged out their Almac, which being their house of Teaching, left them with a deep loss of knowledge.
+The Thel clan had suffered a calamity when their dam broke, flooding their crops and damaging their Almac, the house of Teaching, resulting in a profound loss of knowledge.
 
-Thus the Thel had decided to gamble, and attempt to take from the Ubu clan in one unexpected mighty raid which, if successful, would give them all they needed to make it through Clamortic. It had to succeed for each warrior brought with him the understanding of his families needs, his clans fate, and hope for glory.
+Thus, the Thel had decided to gamble and attempt to take from the Ubu clan in one unexpected, mighty raid, which, if successful, would give them all they needed to make it through Clamortic. It had to succeed for each warrior brought with him the understanding of his family's needs, his clan's fate, and hope for glory.
 
-Total success would not only allow survival of children yet born, but bring with it a poem stone in each Almac across the tribes. Sure the young Thel warriors thought about poem stones, however it was the elders that understood the real need of this raid. Each of them had consulted their personal gods and beliefs in private the night before, for they simply had to walk through their once thriving city to understand the sacrifice that was needed of them now.
+Total success would not only ensure the survival of children yet to be born, but also bring with it a poem stone in each Almac across the tribes. Sure the young Thel warriors thought about poem stones, however it was the elders that understood the real need of this raid. Each of them had consulted their gods and beliefs in private the night before, for they simply had to walk through their once thriving city to understand the sacrifice that was needed of them now.
 
-There indeed would be a poem stone written tonight, but it was not the stone the Thel's hoped for, and in fact it was not the stone the Ubu's hoped for either.
+There indeed would be a poem stone written tonight, but it was not the stone Thel hoped for, and in fact, it was not the stone Ubu hoped for either.
 
 ---
 
@@ -60,13 +60,13 @@ With the seed of change they played.
 
 ---
 
-It was Marrka who arrived just before the rest, or was it that the Utorac was there sooner then one would have hoped. He seemed to not be moving, yet, he was closer then they realized when they launched their attack.
+It was Marrka who arrived just before the rest, or was it that the Utorac was there sooner than one would have hoped. He seemed not to be moving, yet he was closer than they realized when they launched their attack.
 
-Gods! Marrka was down, did he stumble? Or did the Utorac strike him? A pause, and with it life was replaced with death. For before Arak could understand what was happening he stood alone, too close to the seemingly motionless Utorac who stared deeply into his eyes. This brought to Arak not fear, but hopelessness. Around him laid his brothers, joining their gods with prayers from some, and cries from others.
+Gods! Marrka was down. Did he stumble? Or did the Utorac strike him? A pause, and with it, life was replaced with death. For before Arak could understand what was happening, he stood alone, too close to the seemingly motionless Utorac who stared deeply into his eyes. This brought to Arak not fear, but hopelessness. Around him lay his brothers, joining their gods with prayers from some, and cries from others.
 
-Arak knew he would lay with his god before he released his breath. His sword started to drop, and it did, but just. Arak looked down and was surprised to see the Utorac's wonderful sword holding his in place. As he looked up his breath escaped.
+Arak knew he would lie with his god before he released his breath. His sword started to drop, and it did, but just. Arak looked down and was surprised to see the Utorac's wonderful sword holding his in place. As he looked up, his breath escaped.
 
-He lay amongst his brothers with his gods voices calling. So tired, it was time, embrace me, for in your eyes I see my peace, and so passed Arak.
+He lay amongst his brothers with his god's voices calling. So tired, it was time, embrace me, for in your eyes I see my peace, and so passed Arak.
 
 ---
 
@@ -276,19 +276,19 @@ The words seemed to burn themselves into Thorac's mind as he read them by moonli
 
 "She knew," he said quietly. "Somehow, she knew this night would come."
 
-"The question now," Syalla said, "is whether we have the courage to honor her vision or the wisdom to know if we should."
+"The question now," Syalla said, "is whether we dare to honor her vision or the wisdom to know if we should."
 
 ## The Recognition
 
-But even as Thorac held his mother's final stone, another memory stirred—one more recent, yet no less significant. The morning when he had awakened to find Em speaking tensely with the Thel woman who was to be returned to her clan. The morning when he had looked upon a face that called to something deep in his blood.
+But even as Thorac held his mother's final stone, another memory stirred—one more recent, yet no less significant. The morning when he had awakened to find Em speaking tensely with the Thel woman who was to be returned to her clan. The morning when he had looked upon a face that called to something profound in his blood.
 
-"There is something else," he said slowly, his mind racing through connections he had not understood until now. "A few days past, there was a Thel woman at our holding. Isa, daughter of Exle the law-giver. She spoke of her brother Arok, who died by my blade in an earlier skirmish."
+"There is something else," he said slowly, his mind racing through connections he had not understood until now. "A few days ago, there was a Thel woman at our holding. Isa, daughter of Exle the law-giver. She spoke of her brother Arok, who died by my blade in an earlier skirmish."
 
 Syalla's eyes widened. "Isa is my cousin, though we were raised apart. But why do you speak of her now?"
 
-Thorac felt the weight of revelation settling upon him like a mantle. "Because when I looked upon her, I felt what I have never felt before. A recognition that went deeper than sight or sound. And when she spoke her mother's name—Exle—I remembered my grandfather's rage at hearing it, though I was too young then to understand."
+Thorac felt the weight of revelation settling upon him like a mantle. "Because when I looked upon her, I felt what I had never felt before. A recognition that went deeper than sight or sound. And when she spoke her mother's name—Exle—I remembered my grandfather's rage at hearing it, though I was too young then to understand."
 
-The keeper's sharp mind began working through the implications. "Exle was one of the law-givers who ruled on Clamortic births. She would have been involved in any decision about..." She paused, the terrible possibility dawning on her.
+The keeper's sharp mind began working through the implications. Exle was one of the law-givers who ruled on Clamortic births. She would have been involved in any decision about..." She paused, the terrible possibility dawning on her.
 
 "About what to do with a forbidden child," Thorac finished grimly. "But what if her involvement was more than professional? What if the law-giver herself broke the very laws she enforced?"
 
@@ -331,13 +331,15 @@ The wind shifted again, carrying with it the scent of approaching dawn and the w
 
 ## They Sing for Their Dead
 
-The battle had never been in question since the first point of contact between him and the five Thel. Many had witnessed his skill in the quick, effortless encounter, and all knew one of the five was Arok, who even to the mighty warrior clan Ubu was known for his skills. They had been children to him, moving in a different time then him, seemingly fumbling, it was as if they carried no weapons. Even now some muttered and questioned what they had seen. Those that had not, believed, but... well could five be brought down in such a effortless fashion?
+The battle had been no battle at all—merely the brief, brutal education of fools. Five Thel warriors lay sprawled in crimson ruin, and Arok the Terrible among them, he whose name was whispered with dread even in the halls of mighty Ubu. Yet they had fallen like wheat before the scythe, children fumbling with wooden toys while death danced among them with steel and sinew.
 
-Magoroc was there, he saw, and he knew in his heart he would be hard pressed to defend against such a flowing blade. This thought did not upset, worry, or even drag a bit on his mind. He was an Ubu warrior, and such thoughts had never been allowed to bare fruit or find any hope of maturation in his mind. It was simply a logical thought that one of his craft would have. It was natural, especially amongst clan, to probe for weakness, in this the clan strengthened. His trained eye could not find any weakness in Thorac's amazing skill. A smile fell upon his face at this, and a pride, for he was the Ubarac, each of these warriors were more than blood to him, and one such as this would undoubibly strengthen the Ubu. Perhaps this clan could finally take its place at the table of Alamar U Tor, and become one of the high clans. "It would be bitter sweet for him if we finally became a high clan" he thought.
+Magoroc watched from the shadows, his scarred hands unconsciously flexing. By God's iron bones, he had seen slaughter aplenty in his years, but this—this was artistry written in blood. Thorac's blade had flowed like quicksilver, each stroke inevitable as winter's coming. Even now, warriors muttered in hushed tones, questioning what sorcery they had witnessed. Could mortal flesh move with such deadly grace?
 
-He had summoned Thorac, and as he approached he continued to evaluate and probe. Not as large as either his father or grandfather, and his hair was long, dark, and thick with youth. Each step brought a ripple of muscle up his leg and through his midsection. He carried his weapons in the old style, sword across the back tilted at an angle, dagger resting at chest level attached to the swords sheath strap. He could see Thorac's grandfathers touch in this, he was stubbornly of the old ways, this thought brought a smirk to his iron face. He saw Thorac look him quickly from head to toe and noted to himself "What weakness have you uncovered"? They greeted, not has Ubarac and clansman, but as a family would. The Ubarac's battle worn hand gripped him on his strong sword side. It was a tradition that meant "You are of my clan, there is no threat here", and for one to allow this spoke of trust. There was much more than trust and respect between these two. All knew their history, mixed with pain, suffering, strife, and now deep respect for what each brought to the clan. They briefly spoke to each other, words no one could hear, but on each face all could read respect, pride, and a deep friendship. They turned when the rights began, and they looked upon a barbaric scene, which for any who witnessed, no matter how many times, held its power to each heart.
+The Ubarac studied Thorac with the cold eye of a veteran wolf measuring a rival. Not tall like his grandsire, but built lean and hard as Thocian steel. Dark hair fell to his shoulders, and beneath bronze skin, muscles coiled with each step like serpents beneath silk. He bore his weapons in the ancient manner—sword angled across his broad back, dagger riding high on the baldric. The old ways, Magoroc thought with grim approval. His grandfather's stubborn ways still walked in this one's shadow.
 
-It was a picture bordering on surreal, the sun was almost descended into its final glimpse, and the the moons where raising in concert upon each horizon. The dead had been piled, their heads aligned facing the descending sun, weapons not sheathed, eyes closed, stripped of all clothing. A touch of fire and a final journey begins, the fire rising and as one the clan sings their song of honor. A song that in its core expresses the emotion that they will not be forgotten, not lost in histories web.
+Their greeting held no ceremony of rank or station—only the fierce embrace of kinsmen who had bled together under alien stars. Magoroc's battle-scarred hand gripped the younger man's sword-arm, the ritual touch that said: You are mine, and I am yours, and death shall find no purchase between us.
+
+When the death-rites began, even these sons of slaughter fell silent. The western sun bled crimson across the sky while twin moons rose like watching eyes. The slain lay in ordered rows, faces turned toward the dying light, weapons naked in their lifeless hands. Then came the torch, and flame leaped hungrily skyward as voices rose in the ancient death-song—a barbaric hymn that spoke of glory undying and names carved forever in the stones of time.
 
 ```
 I will remember...
