@@ -45,13 +45,15 @@ Aye, there would be a poem stone carved this night—but not the one either clan
 ## The Witness
 
 ```
-She witnessed power and did not strike.
-He saw beauty and spared.
-Together they fell apart
-Apart they fell together
-Laws forbade
-Love made
-With the seed of change they played.
+She glimpsed his power—held her blade in check.
+He saw her beauty—stayed his killing blow.
+United, they crumbled into separate wrecks,
+Divided, into deeper love they'd grow.
+
+What law forbade, desire dared to make,
+What duty killed, their hearts conspired to wake.
+With the dangerous seed of change between them cast—
+They planted futures that would break the past.
 ```
 
 ---
