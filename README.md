@@ -344,28 +344,30 @@ When the death-rites began, even these sons of slaughter fell silent. The wester
 ```
 I will remember...
 
-Mist and smell of the burning fire
-The face of brother, son, father, vanishing in the pyre
+The reek of burning flesh and splintered bone,
+Brother, father, son—now ash alone.
+Born in blood beneath a crimson sky,
+For clan and steel you chose to die.
 
-Born of violence, life of man
-As we will, you gave all for clan
+We stand like granite in the flame,
+And thunder forth your deathless name.
+No more your war-cry splits the air,
+No more your laughter echoes there.
 
-Strong we stand and sing our song
-In respect of clansmen gone
+No more your iron grip in mine,
+Lost where battle-ravens dine.
+Your blade sang hymns to crimson gods,
+While death stalked grim across the sods.
 
-No more the call of cheer
-No more our hearts to hear
-No more we embrace in play
-Lost in battle this day
+Now cold and still, your fighting done,
+Beneath the dying, bloody sun.
+Let flame devour what flesh remains—
+Your spirit rides the astral planes.
 
-Your steel sang calling the souls to death
-Brave struggle to their last icy breath
-
-My life now goes on with out care
-For I know you are no longer there
-
-Let the fire consume what is no longer you
-I will remember my clansmen, and honor those you slew
+I'll not forget how steel rang true,
+Nor honor those your death-song slew.
+Though Hel's black gates have claimed your soul,
+Your name lives on—fierce, proud, and whole.
 
 I will remember...
 ```
