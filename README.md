@@ -56,13 +56,19 @@ With the seed of change they played.
 
 ---
 
-It was Marrka who arrived just before the rest, or was it that the Utorac was there sooner than one would have hoped. He seemed not to be moving, yet he was closer than they realized when they launched their attack.
+Marrka struck first, his war-cry splitting the twilight air—but the Utorac was already there, moving like shadow given flesh. Had the young Thel stumbled on some hidden root? Or had death itself reached out with invisible claws?
+By Bel's black throne—Marrka crumpled without a sound, crimson spreading beneath him like spilled wine. The others barely had time to blink before steel sang its harvest song, and where five warriors had charged, only silence remained.
 
-Gods! Marrka was down. Did he stumble? Or did the Utorac strike him? A pause, and with it, life was replaced with death. For before Arak could understand what was happening, he stood alone, too close to the seemingly motionless Utorac who stared deeply into his eyes. This brought to Arak not fear, but hopelessness. Around him lay his brothers, joining their gods with prayers from some, and cries from others.
+All save Arok.
 
-Arak knew he would lie with his god before he released his breath. His sword started to drop, and it did, but just. Arak looked down and was surprised to see the Utorac's wonderful sword holding his in place. As he looked up, his breath escaped.
+He stood alone in that circle of the dead, close enough to see his own doom reflected in the Utorac's pitiless eyes. No fear touched his heart—fear was for lesser men. But hopelessness? Aye, that cold serpent coiled in his belly as he gazed upon his fallen sword-brothers. Some had died with prayers on their lips, others with curses, but all had died.
 
-He lay amongst his brothers with his god's voices calling. So tired, it was time, embrace me, for in your eyes I see my peace, and so passed Arak.
+Arok felt his blade grow heavy as lead. His sword-arm trembled, began to fall—then stopped. He looked down in wonder. The Utorac's ancestral steel had caught his own blade, holding it suspended between earth and sky like some ritual offering.
+When Arok raised his eyes, he saw eternity waiting.
+
+His breath sighed out like wind through autumn leaves, and he sank down among his brothers. From somewhere beyond the veil, he heard the voices of his gods calling—ancient voices, patient and kind. Sleep came easy then, for in those divine eyes he glimpsed the peace that awaits all warriors when their last battle is done.
+
+Thus passed Arok of the Thel, and with him died the hopes of his doomed clan.
 
 ---
 
