@@ -389,47 +389,41 @@ I will remember...
 
 ## The Morning Encounter
 
-He awoke to silence, clean, peaceful silence. As he was trained he did not open his eyes, instead using other, deeper, senses he explored. It was something his Grandfather instilled in him, knowing to open ones eyes shows you are awake. He recalled this training started as a game in his youth, one his Grandfather would carefully mature as time marched.
+Thorac woke to the hushed breath of pre-dawn, when night's black wings still folded over the world. His grandfather's iron discipline held him motionless—eyes sealed, senses reaching like hungry wolves into the darkness. "Show them you wake, boy, and you show them where death sleeps," the old Ubarac had growled during those brutal training years.
 
-He could tell that the sun was not yet in play, obviously no light was detected but deeper still the air was that special sweetness before twilight.
+The air carried that wine-sweet taste that comes before first light, when shadows grow long and the boundary between worlds grows thin. In this sacred hour, a man could hear the very heartbeat of creation—if he knew how to listen.
+From the pre-dawn stillness came voices, carried on the dying night wind. Em's voice, taut as a bowstring, crackling with barely contained lightning. She spoke with someone at the holding Corrl—doubtless the Thel woman who would return to her clan this day. Though her words were lost to distance, the emotion behind them struck his trained senses like hammer blows. Em was fire and impulse, passion before wisdom—and that fire burned hot this morning.
 
-It was something he always cherished, a moment when just before the first light you could hear deep into the fading night. The faint sound of the Amfor tree stirred and the fading winds were there.
+He rose.
 
-He pushed deeper into the night, and found a voice. His sharp senses focused it and reached into themselves and found it was Em and he could tell she was speaking to some one. He felt how tense the words were being conveyed, the emotion was rich, like the air before the storm. He reached deeper, and believed she was at the holding Corrl, and thus she must be speaking with the Thul woman who was to be returned to her clan today. What she was saying was beyond even the reach of his trained senses, however it was clear it was a tense moment for Em. She was rash, he knew, and prone to emotions before reflecting on there origins, he suspected this was in play now, and this guided his actions.
+Had any witnessed, they would have seen something beyond mortal grace—the transition from absolute stillness to flowing death incarnate. Muscle and sinew moved in perfect harmony, a symphony of destruction clothed in youth's bronze flesh. Beautiful and terrible, like watching a great cat emerge from its lair, every motion screaming of violence barely leashed.
 
-He arose.
+His blade hung beside the sleeping furs, positioned so his hand could find it in the space between heartbeats. Four hundred and sixty-seven cycles this steel had drunk blood for the Ubu clan, through every war, every raid, every desperate last stand. Men whispered it was god-blessed, this ancestral fang that had carved the clan's legend in enemy bone.
 
-If any had been there to witness they would have witnessed him transition from total rest into what can only be described as pure motion, fluid, efficient motion. The effect was in one sense beautiful to watch, with rippling muscles moving as one, a body young, trained, gifted. The other sight this silent witness would have realized is all this was for violence and specifically violence against others. In this he was the product of the crushing forces at play in his world. Simply put, there was not a lot, and so what there was, needed to be kept at all cost, defended, and protected. Life was either held though force, or taken through the application of greater force. It was simple, and like his motion it was pure, and connected to all around him.
+As his fingers closed around the familiar grip, the old words rose unbidden from his soul—his grandfather's final gift:
+"Understand the weakness of steel, boy. It does not fail—you fail. It will not break—you break. Steel has no enemies, no dreams, no hungers. Find these flaws in yourself, root them from your heart. Only then is true steel born."
 
-After he finished dressing, he stared at his blade which was hung next to his sleeping furs in such a way that he could have had it at a moments notice ready, he knew, to deal death to any fiend or foe. In fact they would have noted his sword was always kept within reach, his clothes laid out the night before in such a way to never block his access to his blade. Such a wonderful weapon he thought to himself, its balance perfect, edge true, steel blessed, and its clan worth established. It carried with it a legend deeper then any single man for was this not the blade of his Ubarac lineage. Its age was known, well at least its time with the Ubu's known. Part of Ubu culture for 467 cycles, actively embracing every major conflict in that time span, this blade had been a deep part of the Ubu's success, many spoke that it was god blessed.
+The blade sang from its sheath in a blur of silver lightning, weaving patterns too swift for mortal eyes, then settled across his back in the ancient manner—tilted, ready, eternal.
 
-As he reaches for it he whispers to himself the words his grandfather imbued into his very being.
+"What troubles you, Em?"
+His voice struck her like a physical blow. She spun, thoughts scattering like startled ravens, and met those jade-green eyes that seemed to burn with inner fire. Heat flooded her face, a crimson banner of desire she could not hide. She tried to smile, to mask the hunger that clawed at her heart.
 
-"Understand the weakness of steel. It does not fail, you fail. It will not break, it is you who breaks. It has no enemies, no dreams, no needs. Find these in yourself, look for these in your heart. When found true steel is born."
+"Ask her," she whispered, fleeing toward the morning light like a doe before wolves.
+His gaze followed until she vanished, then his senses tracked her flight—until movement in the shadows froze his blood to ice.
 
-Again we continue to observe him, and a sudden there is movement, the blade a blur in his hands. Complex motions that seemingly can not be confined in such a tight space. As it begins, so it ends, the sword at rest in his scabbard, old style, tilted slightly on his back.
+A ghost stood before him. No—not a ghost. A woman, but one whose very existence sent tremors through his soul. Now it was his turn to feel the flush of confusion, the hammer-blow of recognition without memory.
+"I know you," she said, her voice like honey poured over steel. "Arok embraced your blade and found his place among the gods. I thank you, O Ubu, for granting him proper rites."
+Arok. The name dragged him back to blood-soaked earth and the song of dying steel. "He suffered nothing," Thorac managed, his voice rough as granite. "I grant clean death to all who face me with courage."
+But her face... by Crom's brazen bones, why did it haunt him so? Those eyes, that curve of cheek, the midnight fall of her hair—all familiar as his own heartbeat, yet strange as alien stars.
+"What is your name?" The words escaped as barely more than breath.
 
-"What bothers you so Em?" The question, nay the voice, his voice... startles her. Thoughts lose focus, washed aside as she turns and sees him staring into her eyes. Those green eyes, so pure, deep, she feels his gaze as though a fire was burning close to her face. She is flushed, she knows he sees this, and the flush gets deeper. She fakes a smile, trying to hide her awe, passion, desire.
+"I am Isa of the Thel, second daughter to Exle the Lawgiver." Pride rang in her voice like bronze bells, too loud for the dawn's hush.
+Exle. The name hit him like a war-hammer to the skull. Memories stirred in the dark caves of his mind—his grandfather's voice, thick with barely controlled rage, that cursed name torn from his throat like a battle cry. His great-grandfather's soothing whispers had followed, but the damage was done. Even as a boy, Thorac had felt the weight of ancient hatred in that single word.
 
-She breaks the contact, stares at her feet and mutters, "Ask her..", and Em rushes off into the morning light. His gaze follows her, and when she leaves his vision, his senses follow just as he turns to stare upon a ghost.
+"How do you know my mother?" Isa's voice cut through his reverie, sharp with suspicion.
 
-It is now his turn to flush, be startled, confused. His endless gaze breaks when she speaks. "I know you, Arok is with our gods having embraced your blade, and I thank you O'Ubu for giving him proper rights". These words break his spell, and he stammers, mind a swirl, finally digesting the words. "Yes, I remember your brother, and his comrades, they suffered naught, which is always my goal in battle". Her eyes, hair, shape of her very face, he can not place it. "Who is she, why do I feel so connected to her?" he thinks to himself as he continues to gaze at her. "What is your name?", it is almost a whisper, she is taken aback by the quite tone from one such as he.
-
-"I am Isa of the Thel, second daughter to Exle, our law giver", she proudly states much louder then was needed considering their distance and the morning silence.
-
-"Exle", he continued to whisper almost to himself recalling his grandfather having mentioned her, but when? He dove into his subconscious, running through his memories, digging, rummaging, his head cocking at a slight angle.
-
-"Yes Exle, do you know my mother", she said now in a more controlled tone, her interest in his strange reaction fully engaged.
-
-He found it, and he looked up at Isa trying to understand the connection. He had been young, his great grandfather had been visiting his grandfathers remote Corac. It was not a strange visit, since both men were related to him, one through his mothers side, the other through his father. As was the custom with the young in training he was doing his final sequences before sleep. His routine was interrupted by his grandfathers heavy fist slamming into the the wall of the other room, with one word being spoken in uncontrolled fury... "Exle!" His anger and tone were quickly controlled by his great grandfathers soothing voice and Thorac heard no more of it.
-
-This memory now raced into his mind as he looked upon Isa.
-
-"Who are you?", he thought to himself, however again she answered so his words must have escaped.
-
-"I am Isa, did not you hear me the first time, how do you know my mother Exle?", she said again with a hint of anger.
-
-He turned and left with out acknowledging, and started toward his grandfathers Charlok, questions beginning to grow in his mind as more bits of memories started to come forth and focus his actions. Something whispered in his soul, it was a tickling of fate upon him, something new to him, as though he was about to move. Not in a physical sense as one prepares to jump a challenging distance, but the same in that he felt movement was about to begin, and part of him, deep parts in his being, were starting to prepare and ready him for... what?
+Without answer, he turned away, his feet carrying him toward his grandfather's Charlok. Questions multiplied like plague rats in his skull, and with them came a strange sensation—as if invisible hands were preparing him for some great leap across an unseen chasm. Not his body, but his very soul seemed to coil like a great spring, readying for a transformation he could not name.
+Fate had found him at last, and her name was Isa.
 
 ---
 
