@@ -27,12 +27,17 @@ From what we were to what we've grown.
 ## The Raid
 
 The blade of his grandsire had never sung so sweet in Thorac's iron grip. Forged in the ancient fires and quenched in the blood of kings, it had drunk deep of enemy life for three generations. When he had emerged first from the U Tar Uboc—the Trial of Manhood—last summer under the crimson moon, old Orthox had waited with the ancestral steel gleaming in his weathered hands. The former Ubarac's eyes had blazed with fierce pride as he passed the weapon to his grandson, for in that moment, Thorac had become Utorac—a warrior of the clan.
+
 These memories flickered through his mind like flame-shadows as death rushed toward him on five pairs of legs. The Thel warriors saw only his clan markings, read only the simple rank of Utorac, and grinned with wolf-like hunger. What was one against five? What hope had a single blade against their combined steel?
+
 They could not know they faced the deadliest killer the savage Ubu had ever spawned—young Thorac, whose name would one day shake the very foundations of their world and usher in an age of blood and iron.
 The Emorac raids always intensified during the Clamortic Moon Cycle, when the long nights approached and desperate clans rolled the bones of fate. In the harsh wastelands of Zulac, theft was a coward's game, but taking by strength—whether of arm or wit—was the natural law of survival.
+
 The Thel had learned this truth when their great dam shattered like a giant's toy, drowning their crops in brown flood-water and toppling their sacred Almac—the House of Teaching. Ancient scrolls dissolved, carved stones cracked, and with them died the accumulated wisdom of generations. Now they faced the choice all desperate clans must face: raid or starve.
 So the Thel elders had cast their lots and spoken their war-prayers. One great strike against the Ubu—swift, brutal, decisive. Success would mean survival for their children and glory-songs carved in stone for all the tribes to remember. Each warrior bore not just his weapons, but the weight of his people's fate and the hungry eyes of his kin.
+
 The elders knew what the young bloods did not—that victory would birth legends, but defeat would birth only graves. They had walked through their ruined city, seen the hollow eyes of their women and the swollen bellies of starving children. The gods demanded sacrifice, and tonight, beneath alien stars, that debt would be paid in full.
+
 Aye, there would be a poem stone carved this night—but not the one either clan expected, and written in blood darker than any scribe's ink.
 
 ---
