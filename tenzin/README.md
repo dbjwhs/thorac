@@ -122,3 +122,39 @@ He opened a third folder, this one containing surveillance photos of a man movin
 The irony was not lost on him. They had created their own nemesis.
 
 The old man leaned back, his weathered face creasing with bewilderment. He stubbed out his cigarette with deliberate slowness, his mind racing. It had taken him months of painstaking research, pulling strings with contacts across three continents, calling in favors from sources long thought retired, just to uncover this connection. Yet the Chinese—masters of this shadowy craft for millennia, a civilization built on understanding bloodlines, ancestral vengeance, and generational debt—how had they missed it? Their intelligence apparatus had roots deeper than any Western service could fathom, a bureaucratic memory that stretched back through dynasties, through centuries of palace intrigue and family vendettas. They understood better than anyone how the sins of one generation could manifest in the next, how a grandmother's defiance could flow like poison—or power—through a family line. So how, he wondered with growing unease, could they have possibly overlooked that they were training the grandson of Pema Dolkar? Unless... unless they hadn't missed it at all.
+
+---
+
+## Chapter 5: The Boy Who Ran to the Mountains
+
+The monk had come to their village every year for three years, and every year the same scene played out. 
+
+Three-year-old Tenzin would take one look at the burgundy robes, at the weathered face offering gentle words about balance and inner peace, and he would bolt. Not a normal child's hiding—this was something primal, desperate. He would disappear into the mountain paths above their village with the speed and sure-footedness of something wild, leaving his mother in tears and the monk watching the empty hillside with patient, knowing eyes.
+
+The family was poor, economically crushed by Beijing's retaliation for their "family history"—words that were never spoken aloud but hung heavy in their small home like incense smoke. The boy was advanced for his age, frighteningly intelligent, but there was something broken in him that manifested as pure, volatile anger. By three, he could speak in full sentences that cut like blades. By four, he was reading. By five, he could see through every adult's attempt to manage him.
+
+When the monk found him the first time—a tiny figure curled against a rock outcropping at sunset, shivering but defiant—he didn't try to coax him down. Instead, he sat beside the boy in silence as the temperature dropped, waiting. When Tenzin finally looked at him, eyes blazing with fury and fear, the monk simply said, "The mountains are good teachers. They show us how to be still."
+
+Then he left.
+
+The second year, the boy ran farther. The third year, he seemed to vanish entirely into the high country. His mother was beside herself, begging the monk to help, to force the boy to listen to reason. The monk held her back, both emotionally and physically, his weathered hands gentle but immovable.
+
+"So you cannot help him?" she asked through her tears.
+
+"Yes, I can," the monk replied, his voice carrying the weight of decades spent understanding the human heart. "But it is not yet time for our help."
+
+When the monk returned for the fourth time, he found six-year-old Tenzin waiting by the village path. The boy had packed a small cloth bag himself—clumsily, the way children do, with more hope than practicality. His mother stood behind him, crying quietly, knowing this day had always been inevitable.
+
+Tenzin rose when he saw the monk approach. He walked forward with deliberate steps, bowed with surprising grace for one so young, and spoke with a voice that carried no trace of the wild creature who had fled into the mountains.
+
+"I am ready," he said simply. "Thank you for helping me tame my inner beasts."
+
+They walked together up the narrow path that wound toward the high monastery, Tenzin never looking back even once. His mother's sobs faded behind them, replaced by the sound of their footsteps on ancient stone and the whisper of wind through prayer flags.
+
+As they climbed higher, the monk began to speak, his voice carrying the rhythm of someone who had walked this path many times before.
+
+"The mind is like a wild elephant, young one—powerful beyond measure, but untrained it causes great destruction. We will teach you to tame this elephant, but not by breaking its spirit." His voice was warm, patient. "Remember this: the gradual process of awakening doesn't offer an escape from your wounds and limits; rather it embraces and transforms them, because the only way out is through."
+
+Tenzin listened with a focus that was startling in one so young, his mismatched eyes—one green, one brown—fixed on the path ahead with absolute determination. He didn't understand all the words, but he understood their weight. Something in the monk's voice told him that his anger, his intelligence, his capacity for both creation and destruction—none of it would be wasted here.
+
+As they reached the first switchback and the village disappeared below them, the sound of distant chanting drifted down from the monastery above, carried on the thin mountain air like a promise of transformation.
