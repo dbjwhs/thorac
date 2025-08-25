@@ -6,20 +6,19 @@
 ## Opening Prophecy
 
 ```
-Can we bring our plea to gods above,
-Transform us past these binding laws?
-Without law's structure, we dissolve—
-With law's constraint, we cannot evolve.
-
-We know that stone, once carved, stays true,
-The etched words hold what we can't undo.
-Through these wounds we forge a sacred space,
-A time for all to heal with grace.
-
-In change, we find a deeper love,
-Together building worlds thereof.
-Fire transforms the hardest stone—
-From what we were to what we've grown.
+Can we bring this to the gods—
+make us new beyond the laws?
+Without the laws we cannot remain.
+With the laws we stay the same.
+We know that stone cannot heal.
+Once etched, the words are real.
+With these wounds we create time
+for all to heal.
+With this change, love is made—
+together, a world remade.
+Fire can change the stone
+from what it was,
+reborn as something new to us.
 ```
 
 ---
@@ -77,23 +76,20 @@ Thus passed Arok of the Thel, and with him died the hopes of his doomed clan.
 ## The Teaching of Time
 
 ```
-Time's iron chains bind every mortal soul,
-Yet wise men learn to make the tyrant kneel.
-Compress each moment—stretch your will's control,
-While lesser minds let precious seconds steal.
-
-The master sees what fools can never know:
-Not time that shifts, but consciousness within.
-Transform the flesh—new thoughts begin to flow,
-Reshape the mind—the soul's true work begins.
-
-Forge soul anew, and time becomes your slave,
-Its ancient grip now serves your deeper will.
-The clock still turns, the hours still engrave
-Their passage—but you choose to move or still.
-
-Who conquers self conquers eternity,
-Makes a servant of what once held sovereignty.
+Time holds us all—
+but you can shorten its hold on you,
+lengthen your hold on it.
+The master knows:
+it is not time that changes,
+but the soul within.
+Change the body,
+change the mind.
+Change the mind,
+change the soul.
+Change the soul,
+and time becomes your servant.
+It continues to turn,
+but now it serves your will
 ```
 ---
 
